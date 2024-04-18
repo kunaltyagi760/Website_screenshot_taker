@@ -1,1 +1,0 @@
-# Website_screenshot_taker
